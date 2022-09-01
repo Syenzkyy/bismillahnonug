@@ -16,7 +16,7 @@ Terimakasih Juga Untuk Kang Banned:
 ──────────────────────
 • God
 • My ortu
-• Zivfurr / Ziv San ( Me )
+• Zivfurr / Ziv San ( Sc Owner )
 • Nurutomo
 • Adiwajshing
 • Ariffb
@@ -48,6 +48,7 @@ Terimakasih Juga Untuk Kang Banned:
 • Jarot
 • Tio
 • Aca Mirabel
+• Syenzkyy ( Owner botz )
 • Penyedia Layanan API
 • Orang-orang yang Berdonasi
 ──────────────────────`
